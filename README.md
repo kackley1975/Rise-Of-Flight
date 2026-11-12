@@ -234,4 +234,4 @@ Rise of Flight is a complete free version with all features and updates included
 Don't miss out on the chance to soar through the skies and engage in epic aerial combat. **Download Rise of Flight free today!**
 
 ---
-**Last updated:** 2026-11-11 23:10:12 UTC
+**Last updated:** 2026-11-12 04:35:04 UTC
